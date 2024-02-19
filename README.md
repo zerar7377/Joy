@@ -4,5 +4,3 @@ bcvxvz
 gdsfds
 sdfsdfdsf
 gdgrgregtre
-sdsaccscdv
-ghgjhcj
